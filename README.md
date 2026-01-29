@@ -35,8 +35,8 @@ I build **robust, scalable backend systems** with a strong focus on
 ---
 
 ## 📫 Connect With Me
-📧 Email: yourmail@gmail.com  
-🔗 LinkedIn: https://linkedin.com/in/yourprofile  
+📧 Email: pavankumarp369@gmail.com  
+🔗 LinkedIn: https://www.linkedin.com/in/pavan-shetty-b06a88225/ 
 
 ---
 
